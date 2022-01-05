@@ -11,6 +11,8 @@
 
 **GitHub:** ivarunjka
 
+**Discord:** ivarunjka
+
 ---------------------------
 
 ## About Me
